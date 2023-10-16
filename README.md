@@ -1,0 +1,1 @@
+# cabine-de-foto
